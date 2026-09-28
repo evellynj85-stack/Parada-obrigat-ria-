@@ -1,0 +1,1 @@
+# Parada-obrigat-ria-
